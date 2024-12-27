@@ -1,3 +1,3 @@
 # SomeThingNew
 Nothing much
-Maliq - Rishabh Sharma
+Maliq - Rishabh Pandat
